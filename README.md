@@ -27,7 +27,7 @@ MythKids 2.0 Canva PLR Project Create and Profit From Profitable Children's Vide
 The Children's Entertainment Market Reached $11.2 Billion in 2022, Projected to Reach $18.1 Billion by 2028
 This market holds immense potential, and now is your opportunity to capitalize on it. Access this incredible and profitable domain using our comprehensive, ready-made, and editable video with drag-and-drop app for children's video stories with PLR (Private Label Rights)
 
-### Here's what you'll receive today to save you time:
+## Here's what you'll receive today to save you time:
  
 - A vast array of ready-to-use, uniquely crafted children's video stories
 - Versatile video templates, easily editable with a user-friendly drag-and-drop video editor
