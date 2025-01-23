@@ -29,15 +29,15 @@ This market holds immense potential, and now is your opportunity to capitalize o
 
 ### Here's what you'll receive today to save you time:
  
-●        A vast array of ready-to-use, uniquely crafted children's video stories
-●        Versatile video templates, easily editable with a user-friendly drag-and-drop video editor
-●        Each video comes with enriched voiceovers and animations
-●        All assets are uniquely created by our team; nothing is sourced from free stock footage
-●        Stories are uniquely developed by our team, simple, and impart positive lessons for children
-●        Every video is crafted from scratch by our team to ensure uniqueness and high quality
-●        Private Label Rights included: rebrand, resell, and keep 100% of the profits you make
-●        Ready-to-Use Video Sales Letter, sales page, and download page to facilitate easy selling to your audience
-●        A Done-for-You Business in a Box: everything you need to kickstart your own digital product business in this thriving niche
+- A vast array of ready-to-use, uniquely crafted children's video stories
+- Versatile video templates, easily editable with a user-friendly drag-and-drop video editor
+- Each video comes with enriched voiceovers and animations
+- All assets are uniquely created by our team; nothing is sourced from free stock footage
+- Stories are uniquely developed by our team, simple, and impart positive lessons for children
+- Every video is crafted from scratch by our team to ensure uniqueness and high quality
+- Private Label Rights included: rebrand, resell, and keep 100% of the profits you make
+- Ready-to-Use Video Sales Letter, sales page, and download page to facilitate easy selling to your audience
+- A Done-for-You Business in a Box: everything you need to kickstart your own digital product business in this thriving niche
 
 And the best part? It's available for a single low-cost fee, possibly even cheaper than a meal!
 
