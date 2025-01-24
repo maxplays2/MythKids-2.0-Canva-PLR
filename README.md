@@ -1,4 +1,6 @@
-<meta name="google-site-verification" content="XTE1mJL4OcJAxFEyUflSHwIhAn9alJlC5Dcfei1Xcz8" />
+<head><meta name="google-site-verification" content="XTE1mJL4OcJAxFEyUflSHwIhAn9alJlC5Dcfei1Xcz8" />
+<head/>
+
 
 # MythKids 2.0 Canva PLR Project Review and Training
 **MythKids 2.0 Canva PLR Project - Discover the Power of Children's Entertainment with Our Exclusive Video Story Collection and Private Label Rights. Now You Can Create and Profit engaging children's video stories with our ready-to-use animated videos, complete with voiceovers, all available with an exclusive PLR license.**
